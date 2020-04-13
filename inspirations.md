@@ -1,0 +1,5 @@
+# Inspirations
+
+# Music
+
+# Literature
